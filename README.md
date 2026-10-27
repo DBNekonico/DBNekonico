@@ -1,14 +1,9 @@
-- Hey, I’m @DBNekonico
+- Hey, I’m @DBNekonico , just call me Nekonico or Neko or Nico
        
        
 - Pronouns: Any, I do not care
         
-           
-- Favorite things:
-
-Cats
-
-The Internet
+  
 
 Stuff
 
